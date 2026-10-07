@@ -1,1 +1,1 @@
-do i wanna know if this feelings flows both ways
+do i wanna know if this feelings flows both ways?
